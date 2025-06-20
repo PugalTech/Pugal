@@ -7,4 +7,4 @@
 🚀 I’m currently looking for new opportunities as a **Frappe / ERPNext Developer**  
 
 🌍 Based in **Tamil Nadu, India**  
-📧 Email: your-email@example.com
+📧 Email: pugalarjun2244@gmail.com
